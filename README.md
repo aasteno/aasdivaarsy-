@@ -1,0 +1,2 @@
+# aasdivaarsy-
+moga berangkat selamanya 
